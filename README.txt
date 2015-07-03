@@ -1,0 +1,1 @@
+I unfortunately seem to have left most of my course files on Algonquin's network shared drive, which I've since securely deleted. These are the remaining files I was able to recover from my emails.
